@@ -24,7 +24,7 @@ I have some experiences that help me develop my own skills, including more than 
 - SEO, Web Performance, Guideline & Tech Docs Writing
 
 ## 🚀 How to reach me:
-- Web: [romidev.tech](https://romidev.tech)
+- Web: [romi.my.id](https://romi.my.id)
 - Email: [romidev20@gmail.com](mailto:romidev20@gmail.com)
 - LinkedIn: [romidev](https://www.linkedin.com/in/romidev)
 - Instagram: [@romi_muh05](https://instagram.com/romi_muh05)
