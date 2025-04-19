@@ -26,10 +26,10 @@ I have some experiences that help me develop my own skills, including more than 
 ## 🚀 How to reach me:
 - Web: [romi.my.id](https://romi.my.id)
 - Email: [romidev20@gmail.com](mailto:romidev20@gmail.com)
-- LinkedIn: [romidev](https://www.linkedin.com/in/romidev)
+- LinkedIn: [romimuharom](https://www.linkedin.com/in/romimuharom)
 - Instagram: [@romi_muh05](https://instagram.com/romi_muh05)
 - Twitter: [@leuthra](https://twitter.com/leuthra)
 
 ---
 
-© 2024 — Romi Muharom All Right Reserved
+© 2025 — Romi Muharom All Right Reserved
